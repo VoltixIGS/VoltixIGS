@@ -1,1 +1,1 @@
-Visit my site https://voltix.dev ❤️
+Visit my site https://react.voltix.dev ❤️
